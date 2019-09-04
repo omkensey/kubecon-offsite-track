@@ -4,6 +4,8 @@
 
 * [Torrey Pines Gliderport](https://www.flytorrey.com/): Paragliding and hang gliding, tandem or solo, above a beach.  Call to make sure weather is favorable before going.
 
+* [Mission Beach](https://en.wikipedia.org/wiki/Mission_Beach,_San_Diego): A sandbar between the Pacific Ocean and Mission Bay.  Boardwalk and lots of attractions and activities on the beach.
+
 * [Sky Sailing](https://www.skysailing.com/) at Warner Springs Airport: Sailplane gliding in a variety of different planes configured for everything from aerobatics to leisure rides.
  
 * [Joshua Tree National Park](https://www.nps.gov/jotr/index.htm): The Park straddles the Mojave (upland desert, with the characteristic yucca trees for which the park is named) and Sonoran (lowland, with saguaro among many other cactus species) Deserts.  There’s an enormous variety of wildlife and geology in the park, as well as many, many Native American cultural sites (almost none marked and many unprotected, so please be extra-careful!)  In addition there are more recent historical sites like Keys Ranch and Barker Dam as well as a wide variety of outdoor activities.  You could spend weeks there, but at least a day is highly recommended.  (IMPORTANT NOTE: Weather conditions in the park can be hazardous and cell coverage is almost nonexistent -- be prepared, stay in designated areas and on marked trails, do not interfere with wildlife, and be mindful of warning signs and closures.)
